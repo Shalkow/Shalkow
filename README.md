@@ -1,4 +1,4 @@
-👋 Hi, I'm @Shalkow
+👋 Hi, I'm @Bharat
 
 👀 I'm interested in technology, programming, and open source projects.
 
